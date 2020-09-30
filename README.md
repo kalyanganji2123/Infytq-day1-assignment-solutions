@@ -1,0 +1,1 @@
+# Infytq-day1-assignment-solutions
